@@ -7,6 +7,7 @@
 -   19.9. Verschwörungstheorien (Harari bei Fridman)
 -   26.9. -"-
 -   3.10. Video Huberman Goal Pursuit
+-   10.10. disk. israel palästina islam interpretation
 
 ## 1CVIF (Dienstag)
 
@@ -15,6 +16,7 @@
 -   26.9. Tugenden, freier wille (Spinoza (Höffe #121), Benjamin Libet (Höffe
     #210))
 -   3.10. Spinoza Glück (Höffe #122), Irina Tweedie Youtube (#1/4)
+-   10.10. disk. israel palästina islam interpretation
 
 ## 5AAIF (Mittwoch)
 
