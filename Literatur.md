@@ -6,7 +6,11 @@
 
 ## Videos
 
-### Simon Jacobson
+### Brad Warner
+
+-   <https://www.youtube.com/@HardcoreZen>
+
+### Rabbi Simon Jacobson
 
 -   Giver in a World of Takers: <https://www.youtube.com/watch?v=9MtsYKdcGnI>
 
