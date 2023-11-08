@@ -45,8 +45,9 @@
 
 -   7.9. Kennenlernen, Interessen?
 -   14.9. Conspiracy Theories
--   21.9. Giver in a World of Takers (Simon Jacobson)
+-   21.9. beeing Giver in a World of Takers (Simon Jacobson)
 -   29.9. Roundup Simon Jacobson
 -   5.10. Irina Tweedie
 -   12.10. Palästina
 -   19.10. Shi Heny Yi
+-   9.11.
