@@ -1,3 +1,8 @@
+## Drugs and Psychotherapy
+
+<https://www.youtube.com/watch?v=slUCmZJDXrk> huberman mdma
+<https://www.youtube.com/watch?v=q4MlCkyw1o4> zeit doku 15min
+
 ## Der Herr Karl
 
 Enstanden 1961. Von Helmut Qualtinger (1928-1986). Vitasek im Rabenhof in

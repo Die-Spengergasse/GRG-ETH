@@ -4,6 +4,8 @@
 
 [Literatur](Literatur.html)
 
+[Filme](Filme.html)
+
 ## 1DVIF (Dienstag)
 
 -   12.9. Grundlagen bei Aristotoles und Kant: eudaimonist. vs. kategorischer
@@ -14,6 +16,7 @@
 -   10.10. disk. israel palästina islam interpretation
 -   17.10. KI (Falter)
 -   24.10. Anselm / Brad Warner
+-   7.11. Herr Karl original
 
 ## 1CVIF (Dienstag)
 
@@ -25,6 +28,7 @@
 -   10.10. disk. israel palästina islam interpretation
 -   17.10. KI (Falter)
 -   24.10. Anselm / Brad Warner
+-   7.11. Herr Karl Vitasek
 
 ## 5AAIF (Mittwoch)
 
@@ -34,7 +38,8 @@
 -   27.9. Freud Gewissen Über-Ich / Interesse Nietzsche wurde bekundet
 -   4.10. Nietzsche aus dem Lesebuch
 -   18.10. Palästina (Falter)
--   24.10. Anselm / Brad Warner
+-   25.10. Kriterien psych. Gesundheit Huberman
+-   8.11. LSD-Doku Zeit
 
 ## 3ACIF (Donnerstag)
 
