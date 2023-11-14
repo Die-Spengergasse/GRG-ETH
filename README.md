@@ -17,6 +17,7 @@
 -   17.10. KI (Falter)
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl original
+-   14.11. Forts. Vitasek
 
 ## 1CVIF (Dienstag)
 
@@ -29,6 +30,7 @@
 -   17.10. KI (Falter)
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl Vitasek
+-   14.11. Forts. Original
 
 ## 5AAIF (Mittwoch)
 
@@ -50,4 +52,4 @@
 -   5.10. Irina Tweedie
 -   12.10. Palästina
 -   19.10. Shi Heny Yi
--   9.11.
+-   9.11. lanz talkshow islamisums
