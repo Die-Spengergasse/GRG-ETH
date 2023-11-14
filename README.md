@@ -30,7 +30,7 @@
 -   17.10. KI (Falter)
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl Vitasek
--   14.11. Forts. Original
+-   14.11. Augenzeugenberichte Israel
 
 ## 5AAIF (Mittwoch)
 
