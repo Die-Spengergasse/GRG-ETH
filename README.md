@@ -18,6 +18,7 @@
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl original
 -   14.11. Forts. Vitasek
+-   21.11. kolb-kolm 2/3
 
 ## 1CVIF (Dienstag)
 
@@ -31,6 +32,7 @@
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl Vitasek
 -   14.11. Augenzeugenberichte Israel
+-   21.11. kolb-kolm 10min
 
 ## 5AAIF (Mittwoch)
 
