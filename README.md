@@ -18,7 +18,10 @@
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl original
 -   14.11. Forts. Vitasek
--   21.11. kolb-kolm 2/3
+-   21.11. kromb-kolm 2/3
+-   28.11. kromp-kolb 2
+-   5.12. religion kultur staat diskussion
+-   12.12. die schönheit des islam / kultur / religion wikipedia?
 
 ## 1CVIF (Dienstag)
 
@@ -32,7 +35,9 @@
 -   24.10. Anselm / Brad Warner
 -   7.11. Herr Karl Vitasek
 -   14.11. Augenzeugenberichte Israel
--   21.11. kolb-kolm 10min
+-   21.11. kromb-kolm 10min
+-   28.11. Kromp-kolb Rest
+-   5.12. zib interview schellnhuber
 
 ## 5AAIF (Mittwoch)
 
@@ -44,6 +49,10 @@
 -   18.10. Palästina (Falter)
 -   25.10. Kriterien psych. Gesundheit Huberman
 -   8.11. LSD-Doku Zeit
+-   22.11. Diskussion Psychedelika
+-   29.11. PLF V / Rheinmetall
+-   6.12. Quantenphysik
+-   13.12. Meditation lernen
 
 ## 3ACIF (Donnerstag)
 
@@ -55,3 +64,8 @@
 -   12.10. Palästina
 -   19.10. Shi Heny Yi
 -   9.11. lanz talkshow islamisums
+-   16.11. Japan Makaken / Sozialverhalten
+-   23.11. Kromb-Kolm
+-   30.11. Lesch co2 sammeln
+- 7.12. brad warner insanity
+- 14.12. gu ja
