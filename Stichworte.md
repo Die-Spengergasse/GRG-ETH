@@ -1,0 +1,11 @@
+-   Vivian Dittmar
+-   Zen Confidential
+-   10 Gebote (gültig für Juden, Christen und Muslime) Islam: Zabur (Psalmen)
+    Tawrat (Tora) Koran
+-   mystische Strömungen in allen abrahamitischen Religionen:
+    -   Sufismus
+    -   Kaballah
+    -   kontemplative Orden im Christentum
+-   putins propaganda
+-   medienkompetenz
+-   Paradigmen der Wissenschaft
