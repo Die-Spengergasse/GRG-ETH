@@ -2,10 +2,16 @@
 -   Zen Confidential
 -   10 Gebote (gültig für Juden, Christen und Muslime) Islam: Zabur (Psalmen)
     Tawrat (Tora) Koran
+-   Gebote im Buddhismus: Silas
 -   mystische Strömungen in allen abrahamitischen Religionen:
     -   Sufismus
     -   Kaballah
     -   kontemplative Orden im Christentum
+-   konterkariert: Wittgenstein, worüber man nicht reden kann ..
 -   putins propaganda
+-   chinas propaganda
 -   medienkompetenz
 -   Paradigmen der Wissenschaft
+-   Menschenrechte
+-   Ken Wilber - Halbzeit der Evolution
+-   Aristoteles Satz vom Widerspruch und vom ausgeschlossenen Dritten
