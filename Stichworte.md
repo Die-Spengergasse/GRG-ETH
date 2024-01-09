@@ -15,3 +15,4 @@
 -   Menschenrechte
 -   Ken Wilber - Halbzeit der Evolution
 -   Aristoteles Satz vom Widerspruch und vom ausgeschlossenen Dritten
+-   disk Lesch / Vossenkuhl <https://youtu.be/lZ5GpjkHcRg>

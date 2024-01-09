@@ -23,9 +23,18 @@
     Kromp-Kolb
 -   28.11. kromp-kolb 2
 -   5.12. religion kultur staat diskussion
--   12.12. die schönheit des islam / kultur / religion wikipedia?
--   -   evtl. <https://www.youtube.com/watch?v=7xcBDg2JYkg> (Philosphiy bei
-        min. 38)
+-   12.12. die schönheit des islam / kultur / religion wikipedia? evtl.
+    <https://www.youtube.com/watch?v=7xcBDg2JYkg> (Philosphiy bei min. 38)
+-   19.12. entf
+-   9.1. Jack Haubner Buddhist response to war
+
+### future
+
+-   16.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
+-   16.1. sudzinski ki / hr karl / palästina
+-   16.1. morhaf ki / palästina / islam
+-   entheogen?
+-   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 
 ## 1CVIF (Dienstag)
 
@@ -42,8 +51,17 @@
 -   21.11. kromb-kolm 10min <https://www.youtube.com/watch?v=OasghBj-sZw>
     Vortrag Kromp-Kolb
 -   28.11. Kromp-kolb Rest
--   5.12. zib interview schellnhuber
+-   5.12. zib interview schellnhuber Klima
 -   12.12. Sufismus <https://www.youtube.com/watch?v=7xcBDg2JYkg>
+-   19.12. entf
+-   9.1. Hälfte von Jack Karma: <https://youtu.be/4cK-1_fqFfw>
+
+### future
+
+-   16.1. 2. Half von Jack Karma + embrace the s\*\*w
+-   ∀ lsd
+-   drugs überhaupt
+-   jack haubner
 
 ## 5AAIF (Mittwoch)
 
@@ -61,6 +79,11 @@
 -   29.11. PLF V / Rheinmetall
 -   6.12. Quantenphysik, <https://youtu.be/FwNV_e-Xz68>
 -   13.12. Meditation lernen
+-   20.12. entf
+
+### future
+
+-   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
 ## 3ACIF (Donnerstag)
 
@@ -78,5 +101,11 @@
 -   30.11. Lesch co2 sammeln <https://youtu.be/X0rrTN-ni0c>
 -   7.12. brad warner insanity
 -   14.12. plauderei
+-   21.12. entfallen
+
+### future
+
+-   jane goodall swrf
+-   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 -   gu ja
 -   dont be a jerk / zenfrauen
