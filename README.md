@@ -80,6 +80,7 @@
 -   6.12. Quantenphysik, <https://youtu.be/FwNV_e-Xz68>
 -   13.12. Meditation lernen
 -   20.12. entf
+- 10.1. weischedel / nietzsche / platon 1. Hälfte
 
 ### future
 
