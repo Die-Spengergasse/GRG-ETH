@@ -35,6 +35,7 @@
 -   16.1. morhaf ki / palästina / islam
 -   entheogen?
 -   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
+-   idee walter ziegler
 
 ## 1CVIF (Dienstag)
 
@@ -62,6 +63,7 @@
 -   ∀ lsd
 -   drugs überhaupt
 -   jack haubner
+-   ziegler
 
 ## 5AAIF (Mittwoch)
 
@@ -80,10 +82,11 @@
 -   6.12. Quantenphysik, <https://youtu.be/FwNV_e-Xz68>
 -   13.12. Meditation lernen
 -   20.12. entf
-- 10.1. weischedel / nietzsche / platon 1. Hälfte
+-   10.1. weischedel / nietzsche / platon 1. Hälfte
 
 ### future
 
+-   17.1. weischedel part #2
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
 ## 3ACIF (Donnerstag)
