@@ -27,12 +27,13 @@
     <https://www.youtube.com/watch?v=7xcBDg2JYkg> (Philosphiy bei min. 38)
 -   19.12. entf
 -   9.1. Jack Haubner Buddhist response to war
+-   16.1. morhaf ki / palästina / islam (3)
+-   16.1. sudzinski ki / hr karl / palästina (3)
+-   martisjuk bis kuchen (1)
 
 ### future
 
--   16.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
--   16.1. sudzinski ki / hr karl / palästina
--   16.1. morhaf ki / palästina / islam
+-   23.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
 -   entheogen?
 -   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 -   idee walter ziegler
@@ -83,10 +84,11 @@
 -   13.12. Meditation lernen
 -   20.12. entf
 -   10.1. weischedel / nietzsche / platon 1. Hälfte
+-   17.1. weischedel part #2
 
 ### future
 
--   17.1. weischedel part #2
+-   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
 ## 3ACIF (Donnerstag)
