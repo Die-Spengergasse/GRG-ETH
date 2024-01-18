@@ -108,10 +108,12 @@
 -   7.12. brad warner insanity
 -   14.12. plauderei
 -   21.12. entfallen
+-   11.1. lesch vossenkuhl
+-   18.1.
 
 ### future
 
+-   ziegler descartes
 -   jane goodall swrf
--   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 -   gu ja
 -   dont be a jerk / zenfrauen
