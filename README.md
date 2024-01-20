@@ -109,7 +109,7 @@
 -   14.12. plauderei
 -   21.12. entfallen
 -   11.1. lesch vossenkuhl
--   18.1.
+-   18.1. rollenbilder
 
 ### future
 
