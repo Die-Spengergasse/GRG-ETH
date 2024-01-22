@@ -88,6 +88,7 @@
 
 ### future
 
+- 24.1. Aksoy psychedelika / nietzsche
 -   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
