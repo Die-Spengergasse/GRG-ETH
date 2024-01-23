@@ -34,6 +34,10 @@
 ### future
 
 -   23.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
+-   30.1. entfällt, FGS
+
+### ideas for class
+
 -   entheogen?
 -   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 -   idee walter ziegler
@@ -58,10 +62,13 @@
 -   19.12. entf
 -   9.1. Hälfte von Jack Karma: <https://youtu.be/4cK-1_fqFfw>
 -   16.1. 2. Half von Jack Karma + embrace the s\*\*w
--   16.1. ??? really ???
--   23.1.
 
 ### future
+
+-   23.1. Plan Walter Ziegler
+-   30.1. entf. FGS
+
+### ideas for class
 
 -   ∀ lsd
 -   drugs überhaupt
@@ -91,6 +98,9 @@
 ### future
 
 -   24.1. Aksoy psychedelika / nietzsche
+
+### ideas for class
+
 -   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
@@ -115,6 +125,8 @@
 -   18.1. rollenbilder
 
 ### future
+
+### ideas for class
 
 -   ziegler descartes
 -   jane goodall swrf
