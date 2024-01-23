@@ -57,10 +57,12 @@
 -   12.12. Sufismus <https://www.youtube.com/watch?v=7xcBDg2JYkg>
 -   19.12. entf
 -   9.1. Hälfte von Jack Karma: <https://youtu.be/4cK-1_fqFfw>
+-   16.1. 2. Half von Jack Karma + embrace the s\*\*w
+-   16.1. ??? really ???
+-   23.1.
 
 ### future
 
--   16.1. 2. Half von Jack Karma + embrace the s\*\*w
 -   ∀ lsd
 -   drugs überhaupt
 -   jack haubner
@@ -88,7 +90,7 @@
 
 ### future
 
-- 24.1. Aksoy psychedelika / nietzsche
+-   24.1. Aksoy psychedelika / nietzsche
 -   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
