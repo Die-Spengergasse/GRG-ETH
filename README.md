@@ -6,7 +6,7 @@
 
 [Filme](Filme.html)
 
-## 1DVIF (Dienstag)
+## 2CAIF Montag (vorm. 1DVIF - Dienstag)
 
 -   12.9. Grundlagen bei Aristotoles und Kant: eudaimonist. vs. kategorischer
     Ansatz
@@ -30,11 +30,12 @@
 -   16.1. morhaf ki / palästina / islam (3)
 -   16.1. sudzinski ki / hr karl / palästina (3)
 -   martisjuk bis kuchen (1)
+-   23.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
+-   30.1. entfällt, FGS
 
 ### future
 
--   23.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
--   30.1. entfällt, FGS
+-   18.2. Walter Ziegler .. und ist da wer aus der ehem. 1CVIF dabei?
 
 ### ideas for class
 
@@ -62,6 +63,7 @@
 -   19.12. entf
 -   9.1. Hälfte von Jack Karma: <https://youtu.be/4cK-1_fqFfw>
 -   16.1. 2. Half von Jack Karma + embrace the s\*\*w
+-   23.1. ??
 
 ### future
 
@@ -75,7 +77,7 @@
 -   jack haubner
 -   ziegler
 
-## 5AAIF (Mittwoch)
+## 6AAIF Mittwoch (vorm. 5AAIF - Mittwoch)
 
 -   6.9. Vorstellung, Beginn bei Aristotheles
 -   13.9. Conspiracy Theories, Klimakleber (Fridman Harari Video)
@@ -94,17 +96,16 @@
 -   20.12. entf
 -   10.1. weischedel / nietzsche / platon 1. Hälfte
 -   17.1. weischedel part #2
+-   24.1. Aksoy psychedelika / nietzsche
 
 ### future
-
--   24.1. Aksoy psychedelika / nietzsche
 
 ### ideas for class
 
 -   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 
-## 3ACIF (Donnerstag)
+## 4ACIF (Donnerstag) (vorm 3ACIF)
 
 -   7.9. Kennenlernen, Interessen?
 -   14.9. Conspiracy Theories <https://youtu.be/Mde2q7GFCrw>
@@ -123,6 +124,7 @@
 -   21.12. entfallen
 -   11.1. lesch vossenkuhl
 -   18.1. rollenbilder
+-   25.1. Hannah Ahrend #1
 
 ### future
 
