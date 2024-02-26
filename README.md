@@ -32,6 +32,8 @@
 -   martisjuk bis kuchen (1)
 -   23.1. dekan 7.11. (hr karl), 19.9 (harari / conspiracy) und 17.10 (ki)
 -   30.1. entfällt, FGS
+-   ======================= neues semester =======================
+-   19.2. ORF Navalny Cliffhanger
 
 ### future
 
@@ -42,6 +44,11 @@
 -   entheogen?
 -   idee lesch vossenkuhl (https://youtu.be/lZ5GpjkHcRg)
 -   idee walter ziegler
+
+## 2BAIF - Montag ungerade
+
+-   26.2. Grundlagen bei Aristoteles und Kant: eudaimonist. vs. kategorischer
+    Ansatz, Zeigler Kant bis nach dem Plastiksackerl
 
 ## 1CVIF (Dienstag)
 
@@ -125,6 +132,7 @@
 -   11.1. lesch vossenkuhl
 -   18.1. rollenbilder
 -   25.1. Hannah Ahrend #1
+-   13.2. Hannah Ahrend #2
 
 ### future
 
