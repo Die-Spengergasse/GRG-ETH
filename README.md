@@ -34,6 +34,7 @@
 -   30.1. entfällt, FGS
 -   ======================= neues semester =======================
 -   19.2. ORF Navalny Cliffhanger
+-   4.3. Navalny #2 / diskussion autoritäre Regime
 
 ### future
 
