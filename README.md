@@ -35,10 +35,11 @@
 -   ======================= neues semester =======================
 -   19.2. ORF Navalny Cliffhanger
 -   4.3. Navalny #2 / diskussion autoritäre Regime
+-   18.3.
 
 ### future
 
--   18.2. Walter Ziegler .. und ist da wer aus der ehem. 1CVIF dabei?
+-   18.2. Walter Ziegler Karl Marx
 
 ### ideas for class
 
@@ -71,8 +72,9 @@
 -   10.1. weischedel / nietzsche / platon 1. Hälfte
 -   17.1. weischedel part #2
 -   24.1. Aksoy psychedelika / nietzsche
--   21.2.
--   6.3.
+-   21.2. nawalny #1
+-   6.3. nawalny #2
+-   20.3. LQBTQ+, Diversity, Menschenrechte bis Artikel 20
 
 ### future
 
@@ -80,6 +82,7 @@
 
 -   ziegler descartes
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
+-   marx ziegler
 
 ## 4ACIF (Donnerstag) (vorm 3ACIF)
 
