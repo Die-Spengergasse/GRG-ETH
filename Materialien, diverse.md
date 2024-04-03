@@ -8,14 +8,6 @@
 
 -   erklär mir die Welt
 
-### Brad Warner
-
--   <https://www.youtube.com/@HardcoreZen>
-
-### Rabbi Simon Jacobson
-
--   Giver in a World of Takers: <https://www.youtube.com/watch?v=9MtsYKdcGnI>
-
 ### Andrew Huberman
 
 -   Goal Pursuit <https://youtu.be/CrtR12PBKb0>
@@ -25,10 +17,13 @@
 -   Interview mit Lex Friedman
     <https://www.youtube.com/watch?v=Mde2q7GFCrw&t=7185s>
 
-### Irina Tweedie
+## Diverse Ideen
 
--   Part 1: <https://www.youtube.com/watch?v=v1mFqZuEHsc>
-
-### Josan Jack Haubner
-
--   Zen Confidential
+-   Vivian Dittmar
+-   konterkariert: Wittgenstein, worüber man nicht reden kann ..
+-   putins propaganda
+-   chinas propaganda
+-   medienkompetenz
+-   Ken Wilber - Halbzeit der Evolution
+-   Aristoteles Satz vom Widerspruch und vom ausgeschlossenen Dritten
+-   disk Lesch / Vossenkuhl <https://youtu.be/lZ5GpjkHcRg>

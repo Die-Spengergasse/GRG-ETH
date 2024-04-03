@@ -1,20 +1,3 @@
-## Drugs and Psychotherapy
-
-<https://www.youtube.com/watch?v=slUCmZJDXrk> huberman mdma
-<https://www.youtube.com/watch?v=q4MlCkyw1o4> zeit doku 15min (timo)
-<https://www.youtube.com/watch?v=FG4ZSXRCUAg> swr doku (karin) diverse Stoffe
-besprochen [doku arte](https://youtu.be/hqkIJPS8jbI) (beste!)
-
-## Der Herr Karl
-
-Enstanden 1961. Von Helmut Qualtinger (1928-1986). Vitasek im Rabenhof in
-Ethik_Filme. Der Mitläufer-Durchschnittsbürger als Mit-Täter.
-
-## Klimagerechtigkeit
-
--   <https://www.suedwind.at/wien/downloads/beitraege/tagung-2023/>
--   <https://www.youtube.com/watch?v=OasghBj-sZw> Vortrag Kromp-Kolb
-
 ## The Scientific Paradigm
 
 -   <https://www.intechopen.com/chapters/58890> Sehr tiefgehender Artikel

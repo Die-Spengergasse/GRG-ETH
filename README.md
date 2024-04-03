@@ -75,6 +75,7 @@
 -   21.2. nawalny #1
 -   6.3. nawalny #2
 -   20.3. LQBTQ+, Diversity, Menschenrechte bis Artikel 20
+-   3.4. Menschenrechte cont.
 
 ### future
 
