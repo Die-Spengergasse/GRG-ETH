@@ -85,7 +85,7 @@
 -   egotod! jack haubner marriage <https://youtu.be/6Utq-3QO5C8>
 -   marx ziegler
 
-## 4ACIF (Donnerstag) (vorm 3ACIF)
+## 4ACIF (Donnerstag Abend) (vorm 3ACIF)
 
 -   7.9. Kennenlernen, Interessen?
 -   14.9. Conspiracy Theories <https://youtu.be/Mde2q7GFCrw>
@@ -106,9 +106,13 @@
 -   18.1. rollenbilder
 -   25.1. Hannah Ahrend #1
 -   13.2. Hannah Ahrend #2
--   20.2.
--   27.2.
--   6.3.
+-   22.2.
+-   29.2.
+-   7.3.
+-   14.3.
+-   21.3. disk lgbtq+ / Menschenrechte
+-   28.3. gründonnerstag
+-   4.4. Menschenrechte 15+
 
 ### future
 
