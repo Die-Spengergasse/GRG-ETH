@@ -112,7 +112,7 @@
 -   14.3.
 -   21.3. disk lgbtq+ / Menschenrechte
 -   28.3. gründonnerstag
--   4.4. Menschenrechte 15+
+-   4.4. Menschenrechte 15+ bis 27
 
 ### future
 
