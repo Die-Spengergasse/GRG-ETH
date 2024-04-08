@@ -1,10 +1,8 @@
 # GRG-ETH
 
-[Ideen](Ideen.html)
-
-[Literatur](Literatur.html)
-
-[Filme](Filme.html)
+-   [Ideen](Ideen.html)
+-   [Literatur](Literatur.html)
+-   [Filme](Filme.html)
 
 ## 2CAIF Montag gerade Woche 13:25
 
@@ -51,6 +49,8 @@
 
 -   26.2. Grundlagen bei Aristoteles und Kant: eudaimonist. vs. kategorischer
     Ansatz, Zeigler Kant bis nach dem Plastiksackerl
+-   11.3. Ziegler Kant #2
+-   8.4. 10 Gebote
 
 ## 6AAIF Mittwoch gerade Wochen 15:15 Schletz
 
