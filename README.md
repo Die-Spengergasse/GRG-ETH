@@ -77,6 +77,7 @@
 - 6.3. nawalny #2
 - 20.3. LQBTQ+, Diversity, Menschenrechte bis Artikel 20
 - 3.4. Menschenrechte cont.
+- 17.4. weis noch nict
 
 ### future
 
