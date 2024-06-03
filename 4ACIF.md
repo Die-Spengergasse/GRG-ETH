@@ -27,12 +27,13 @@
 - 28.3. gründonnerstag, enft.
 - 4.4. Menschenrechte 15+ bis 27
 - 18.4. MR FS, dann Lesch Kosmos Cannabis
-- 25.4. Oberst Reisner evtl. ODER Meritocracy
+- 25.4.
 
 ### future
 
 ### ideas for class
 
+- Oberst Reisner evtl. ODER Meritocracy
 - ziegler descartes
 - jane goodall swrf
 - gu ja
