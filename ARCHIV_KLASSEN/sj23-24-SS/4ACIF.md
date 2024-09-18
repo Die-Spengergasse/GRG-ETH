@@ -1,4 +1,4 @@
-## 4ACIF (Donnerstag Abend) (vorm 3ACIF)
+# 4ACIF (Donnerstag Abend) (vorm 3ACIF)
 
 - 7.9. Kennenlernen, Interessen?
 - 14.9. Conspiracy Theories <https://youtu.be/Mde2q7GFCrw>
@@ -21,15 +21,19 @@
 - 13.2. Hannah Ahrend #2
 - 22.2. Präsentation Hinduismus Gauam
 - 29.2. Diskussion Hinduismus
-- 7.3.
+- 7.3. Mystizismus
 - 14.3. Bruder David
 - 21.3. disk lgbtq+ / Menschenrechte
 - 28.3. gründonnerstag, enft.
 - 4.4. Menschenrechte 15+ bis 27
 - 18.4. MR FS, dann Lesch Kosmos Cannabis
+- 16.5. Drg. Kunst Brix Arte (keine Anwesenheit!)
 - 25.4.
+- 2.5. Ethik des Krieges
+- 23.5. Ukrainekrieg
+- 6.6. Woke Bewegung vs. Aufklärung
 
-### future
+## future
 
 ### ideas for class
 

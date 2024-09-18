@@ -1,4 +1,4 @@
-## 2CAIF Montag gerade Woche 13:25
+# 2CAIF Montag gerade Woche 13:25
 
 ======================= Wintersemester =======================
 
@@ -31,14 +31,15 @@
 - 19.2. ORF Navalny Cliffhanger
 - 4.3. Navalny #2 / diskussion autoritäre Regime
 - 18.3. Harari mit Ian Bremmer
-- 15.4. FW Harari und Ziegler Kant bis 54
+- 15.4. FS Harari und Ziegler Kant bis 54
 - 29.4. 47/47 Ziegler Kant <https://youtu.be/q2Wky9MKw50>
+- 10.6. kana da
 
-### future / open issues
+## future / open issues
 
 - 13.5.
 - 27.5.
-- 10.6.
+- 10.6. Woke vs. Aufklärung
 - 24.6.
 - Drogen / Politik / Therapie
 - Ziegler Karl Marx
