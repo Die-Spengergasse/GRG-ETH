@@ -1,3 +1,5 @@
+# eth 2baif
+
 ## 2BAIF - Montag ungerade Woche 13:25
 
 - 26.2. Grundlagen bei Aristoteles und Kant: eudaimonist. vs. kategorischer

@@ -13,7 +13,6 @@
 - indigene
 - Religion vs. Wissenschaft
 
-
 ## 2024-09-17
 
 - Auswahl Muhos erster Dharma Talk Felsentor <https://youtu.be/tZGkejqXhiY>
@@ -21,4 +20,3 @@
 - Yuval Noah Harari on AI, Future Tech, Society & Global Finance <https://youtu.be/_eYDNcSYUCA>
 
 ## 2024-10-01
-
