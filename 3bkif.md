@@ -2,8 +2,17 @@
 
 ## offene Wünsche
 
-- Mashagi rausnehmen
 - KI (Maska)
+- Nietzsche!!
+
+## 2024-10-07
+
+Nietsche
+
+- ewige Wiederkehr des Gleichen
+- Übermensch
+- Nihilismus
+- Video Ziegler
 
 ## 2024-09-30
 
