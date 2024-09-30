@@ -26,4 +26,9 @@ Charakter / Herzensbildung / "geschultes Bauchgefühl"?
 
 ## 2024-09-30
 
-Erziehung, Charakterbildung
+Erziehung, Charakterbildung <https://de.wikipedia.org/wiki/Kardinaltugend>
+
+- 4 Kardinaltugenden schon in der Vorsokratischen Zeit bekannt. Name "virtutes cardinales" erst von Ambrosius v. Mailand  4.Jh.
+- Kant (gest. 1804): Der gute Wille des Menschen *ist* die Primärtugend, die 4 VC sind *Sekundär*tugenden.
+- Konfuzius und Mengzi (siehe wikipedia)
+- Yoga / Hinduismus: Yama und Niyama: <https://de.wikipedia.org/wiki/Yama>
