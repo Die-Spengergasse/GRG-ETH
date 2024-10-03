@@ -1,8 +1,8 @@
 # 3CAIF ETHIK WS 2425
 
-## 3.10
+## 2024-10-03
 
-- muho häppchen (channel search)
+Muho und mostly true
 
 ## 26.9
 

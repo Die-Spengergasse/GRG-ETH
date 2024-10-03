@@ -2,6 +2,10 @@
 
 14-tägig alternierend!
 
+## gewünschte Themen unten
+
+## 2024-10-01
+
 - woke
 - tengrismus
 - islam
